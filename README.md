@@ -2,9 +2,9 @@
 ---
 
 📫 **How to reach me:**  
-- GitHub: [Your Profile](https://github.com/YOUR_USERNAME)  
-- Email: [Your Email]  
-- Telegram: [Your Telegram]  
+- GitHub: [setbs](https://github.com/setbs)  
+- Email: kr9ka4@gmail.com
+- Telegram: @Shesh2120  
 
 ---
 
